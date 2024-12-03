@@ -1,0 +1,1 @@
+# allmyfriendscamp2025
